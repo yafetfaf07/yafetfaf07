@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **japhetkumalo23@gmail.com**
 
-- ⚡ Fun fact **I hate it when looking for lost items**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
